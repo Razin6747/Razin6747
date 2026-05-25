@@ -81,8 +81,10 @@ Results-driven and detail-oriented Data Analyst with a strong interest in data a
 
 ## 📫 Connect With Me
 
-- 💼 LinkedIn: Add your LinkedIn profile link here
-- 📧 Email: add-your-email@example.com
+- 💼 LinkedIn:www.linkedin.com/in/
+razin-meleveettil-863876392
+
+- 📧 Email: razinm65@gmail.com
 
 ---
 
